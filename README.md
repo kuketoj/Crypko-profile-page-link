@@ -16,3 +16,5 @@
 [Wegifan](https://crypko.ai/#/profile/0x3db2468271298749929b0c4aa42cc4ca9722716a)
 
 [角码](https://crypko.ai/#/profile/0x842c994519b31b0303ef62564390bddf7dc77271)
+
+[PiDove](https://crypko.ai/#/profile/0xA0623311ED7165A3EaEbBC6da87f517AedA47541)
