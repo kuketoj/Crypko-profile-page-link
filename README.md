@@ -15,6 +15,8 @@
 
 [Wegifan](https://crypko.ai/#/profile/0x3db2468271298749929b0c4aa42cc4ca9722716a)
 
-[角码](https://crypko.ai/#/profile/0x842c994519b31b0303ef62564390bddf7dc77271)
+[golden smash](https://crypko.ai/#/profile/0x842c994519b31b0303ef62564390bddf7dc77271)
 
 [PiDove](https://crypko.ai/#/profile/0xA0623311ED7165A3EaEbBC6da87f517AedA47541)
+
+[信念不败≧ε≦终身不悔（萌新，需卡）]0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
