@@ -19,4 +19,4 @@
 
 [PiDove](https://crypko.ai/#/profile/0xA0623311ED7165A3EaEbBC6da87f517AedA47541)
 
-[信念不败≧ε≦终身不悔(萌新，需卡)]0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
+信念不败≧ε≦终身不悔(萌新，需卡) : 0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
