@@ -2,8 +2,10 @@
 记录crypko交流群群员的主页地址
 
 [群主(Rio)](https://crypko.ai/#/profile/0xCE25087Bd9CCf4b2fe4c03f55721950e2723537c)
+dalao，卖好卡。
 
 [天祈穹](https://crypko.ai/#/profile/0x4B5851e4a5d868AB1Da1b93Beb4a2644ea662225)
+julao，好卡贱卖，人又好，经常送卡，大家超喜欢的。
 
 [蓝蟹邂蓝](https://crypko.ai/#/profile/0x0E5C25aBbb0FaC2673F08C628815B074B4f48a18)
 
