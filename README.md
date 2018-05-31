@@ -7,10 +7,13 @@ dalao，卖好卡：0xCE25087Bd9CCf4b2fe4c03f55721950e2723537c
 [天祈穹](https://crypko.ai/#/profile/0x4B5851e4a5d868AB1Da1b93Beb4a2644ea662225)  
 julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e4a5d868AB1Da1b93Beb4a2644ea662225
 
+[MesMiltruidMutactort](https://crypko.ai/#/profile/0x8720b6076fa645e722c310b8b11859e998881a6e)  
+0x8720b6076fa645e722c310b8b11859e998881a6e
+
 [蓝蟹邂蓝](https://crypko.ai/#/profile/0x0E5C25aBbb0FaC2673F08C628815B074B4f48a18)  
 总是不出好卡：0x0E5C25aBbb0FaC2673F08C628815B074B4f48a18
 
-[逗比不正常](https://crypko.ai/#/profile/0xd2c1eacd7ef5917ee50812e04a9a660c939ed776)
+[逗比不正常](https://crypko.ai/#/profile/0xd2c1eacd7ef5917ee50812e04a9a660c939ed776)  
 0xd2c1eacd7ef5917ee50812e04a9a660c939ed776
 
 [XuanXuan123](https://crypko.ai/#/profile/0x855a36b89170082bb44039fff58e5472279df48e)  
