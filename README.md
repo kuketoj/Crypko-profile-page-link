@@ -1,5 +1,6 @@
 # Crypko-profile-page-link
-记录crypko交流群群员的主页地址
+记录crypko交流群群员的主页地址。  
+欢迎加入crypko交流群（QQ群）：787793387，群id：crypko遗传性状研究所
 
 [群主(Rio)](https://crypko.ai/#/profile/0xCE25087Bd9CCf4b2fe4c03f55721950e2723537c)  
 dalao，卖好卡：0xCE25087Bd9CCf4b2fe4c03f55721950e2723537c
