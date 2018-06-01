@@ -33,3 +33,6 @@ julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e
 
 [Shimakaze](https://crypko.ai/#/profile/0xD476515D39BbE098ac2C6a0A11c2018c03D27D20)  
 萌新，需卡 : 0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
+
+[Utaha](https://crypko.ai/#/profile/0x3e86Aef67002Bb2Bf442F99303603e8f59461363)  
+萌新，我很可爱，请给我卡：0x3e86Aef67002Bb2Bf442F99303603e8f59461363
