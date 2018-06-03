@@ -40,3 +40,6 @@ julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e
 
 [jojo23333](https://crypko.ai/#/profile/0x5d536c8965c14ac7096407f614470ddbf81bab7b)
 萌新，专攻眼镜，有眼镜娘请认准唯一指定地址：0x5d536c8965c14ac7096407f614470ddbf81bab7b
+
+[幻想生物](https://crypko.ai/#/profile/0x804e40b5387b1b48122734c5a4f6bbb071fdf920)
+0x804e40b5387b1b48122734c5a4f6bbb071fdf920
