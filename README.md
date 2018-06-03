@@ -52,3 +52,6 @@ julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e
 
 [Amber](https://crypko.ai/#/profile/0x2f561d4e5b6a5102b124b7c34b2bfbde905e4a7a)  
 0x2f561d4e5b6a5102b124b7c34b2bfbde905e4a7a
+
+[baka zxc](https://crypko.ai/#/profile/0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492）  
+群内id：吃。 0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492
