@@ -55,3 +55,6 @@ julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e
 
 [baka zxc](https://crypko.ai/#/profile/0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492)  
 群内id：吃。 0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492
+
+[Melody](https://crypko.ai/#/profile/0xbf122C217153258aBBd479A606Eb7B86425b89De)  
+0xbf122C217153258aBBd479A606Eb7B86425b89De
