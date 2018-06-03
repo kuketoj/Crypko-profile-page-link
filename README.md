@@ -43,3 +43,6 @@ julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e
 
 [幻想生物](https://crypko.ai/#/profile/0x804e40b5387b1b48122734c5a4f6bbb071fdf920)  
 收各类小萝莉: 0x804e40b5387b1b48122734c5a4f6bbb071fdf920
+
+[Shimakaze](https://crypko.ai/#/profile/0xd476515d39bbe098ac2c6a0a11c2018c03d27d20)  
+0xd476515d39bbe098ac2c6a0a11c2018c03d27d20
