@@ -49,3 +49,6 @@ julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e
 
 [tetora](https://crypko.ai/#/profile/0x734adcdE5Ef844866d953b9E644012A808Bd0a25)  
 0x734adcdE5Ef844866d953b9E644012A808Bd0a25
+
+[Amber](https://crypko.ai/#/profile/0x2f561d4e5b6a5102b124b7c34b2bfbde905e4a7a)  
+0x2f561d4e5b6a5102b124b7c34b2bfbde905e4a7a
