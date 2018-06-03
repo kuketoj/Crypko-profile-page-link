@@ -58,3 +58,6 @@ julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e
 
 [Melody](https://crypko.ai/#/profile/0xbf122C217153258aBBd479A606Eb7B86425b89De)  
 0xbf122C217153258aBBd479A606Eb7B86425b89De
+
+[邪神回收者](https://crypko.ai/#/profile/0x99a9a846ec6cacb06b64fc79ed6e0e974729d258)  
+请把邪神都丢过来：0x99a9a846ec6cacb06b64fc79ed6e0e974729d258
