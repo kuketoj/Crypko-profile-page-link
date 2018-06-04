@@ -19,6 +19,7 @@
 
 1. [逗比不正常](https://crypko.ai/#/profile/0xd2c1eacd7ef5917ee50812e04a9a660c939ed776)
     - 0xd2c1eacd7ef5917ee50812e04a9a660c939ed776
+    - 异色瞳收藏中
 
 1. [XuanXuan123](https://crypko.ai/#/profile/0x855a36b89170082bb44039fff58e5472279df48e)
     - 0x855a36b89170082bb44039fff58e5472279df48e
