@@ -36,7 +36,7 @@ julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e
 萌新，需卡 : 0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
 
 [Utaha](https://crypko.ai/#/profile/0x3e86Aef67002Bb2Bf442F99303603e8f59461363)  
-萌新，我很可爱：0x3e86Aef67002Bb2Bf442F99303603e8f59461363
+白发银发红瞳募集：0x3e86Aef67002Bb2Bf442F99303603e8f59461363
 
 [jojo23333](https://crypko.ai/#/profile/0x5d536c8965c14ac7096407f614470ddbf81bab7b)  
 萌新，专攻眼镜，有眼镜娘请认准唯一指定地址：0x5d536c8965c14ac7096407f614470ddbf81bab7b
