@@ -1,66 +1,80 @@
 # Crypko-profile-page-link
-记录crypko交流群群员的主页地址。  
+记录crypko交流群群员的主页地址。
 欢迎加入crypko交流群（QQ群）：787793387，群id：crypko遗传性状研究所
 
-[群主(Rio)](https://crypko.ai/#/profile/0xCE25087Bd9CCf4b2fe4c03f55721950e2723537c)  
-dalao，卖好卡：0xCE25087Bd9CCf4b2fe4c03f55721950e2723537c
+1. [群主(Rio)](https://crypko.ai/#/profile/0xCE25087Bd9CCf4b2fe4c03f55721950e2723537c)
+    - 0xCE25087Bd9CCf4b2fe4c03f55721950e2723537c
+    - dalao，卖好卡
 
-[天祈穹](https://crypko.ai/#/profile/0x4B5851e4a5d868AB1Da1b93Beb4a2644ea662225)  
-julao，好卡贱卖，人又好，经常送卡，大家超喜欢的：0x4B5851e4a5d868AB1Da1b93Beb4a2644ea662225
+1. [天祈穹](https://crypko.ai/#/profile/0x4B5851e4a5d868AB1Da1b93Beb4a2644ea662225)
+    - 0x4B5851e4a5d868AB1Da1b93Beb4a2644ea662225
+    - julao，好卡贱卖，人又好，经常送卡，大家超喜欢的
 
-[MesMiltruidMutactort](https://crypko.ai/#/profile/0x8720b6076fa645e722c310b8b11859e998881a6e)  
-0x8720b6076fa645e722c310b8b11859e998881a6e
+1. [MesMiltruidMutactort](https://crypko.ai/#/profile/0x8720b6076fa645e722c310b8b11859e998881a6e)
+    - 0x8720b6076fa645e722c310b8b11859e998881a6e
 
-[蓝蟹邂蓝](https://crypko.ai/#/profile/0x0E5C25aBbb0FaC2673F08C628815B074B4f48a18)  
-总是不出好卡：0x0E5C25aBbb0FaC2673F08C628815B074B4f48a18
+1. [蓝蟹邂蓝](https://crypko.ai/#/profile/0x0E5C25aBbb0FaC2673F08C628815B074B4f48a18)
+    - 0x0E5C25aBbb0FaC2673F08C628815B074B4f48a18
+    - 总是不出好卡
 
-[逗比不正常](https://crypko.ai/#/profile/0xd2c1eacd7ef5917ee50812e04a9a660c939ed776)  
-0xd2c1eacd7ef5917ee50812e04a9a660c939ed776
+1. [逗比不正常](https://crypko.ai/#/profile/0xd2c1eacd7ef5917ee50812e04a9a660c939ed776)
+    - 0xd2c1eacd7ef5917ee50812e04a9a660c939ed776
 
-[XuanXuan123](https://crypko.ai/#/profile/0x855a36b89170082bb44039fff58e5472279df48e)  
-0x855a36b89170082bb44039fff58e5472279df48e
+1. [XuanXuan123](https://crypko.ai/#/profile/0x855a36b89170082bb44039fff58e5472279df48e)
+    - 0x855a36b89170082bb44039fff58e5472279df48e
 
-[SHUI](https://crypko.ai/#/profile/0x4bba2bc7bc4ea0f66374b166448e3be7b9815589)  
-0x4bba2bc7bc4ea0f66374b166448e3be7b9815589
+1. [SHUI](https://crypko.ai/#/profile/0x4bba2bc7bc4ea0f66374b166448e3be7b9815589)
+    - 0x4bba2bc7bc4ea0f66374b166448e3be7b9815589
 
-[Wegifan](https://crypko.ai/#/profile/0x3db2468271298749929b0c4aa42cc4ca9722716a)  
-0x3db2468271298749929b0c4aa42cc4ca9722716a
+1. [Wegifan](https://crypko.ai/#/profile/0x3db2468271298749929b0c4aa42cc4ca9722716a)
+    - 0x3db2468271298749929b0c4aa42cc4ca9722716a
 
-[golden smash](https://crypko.ai/#/profile/0x842c994519b31b0303ef62564390bddf7dc77271)  
-0x842c994519b31b0303ef62564390bddf7dc77271
+1. [golden smash](https://crypko.ai/#/profile/0x842c994519b31b0303ef62564390bddf7dc77271)
+    - 0x842c994519b31b0303ef62564390bddf7dc77271
 
-[PiDove](https://crypko.ai/#/profile/0xA0623311ED7165A3EaEbBC6da87f517AedA47541)  
-0xA0623311ED7165A3EaEbBC6da87f517AedA47541
+1. [PiDove](https://crypko.ai/#/profile/0xA0623311ED7165A3EaEbBC6da87f517AedA47541)
+    - 0xA0623311ED7165A3EaEbBC6da87f517AedA47541
 
-[Shimakaze](https://crypko.ai/#/profile/0xD476515D39BbE098ac2C6a0A11c2018c03D27D20)  
-萌新，需卡 : 0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
+1. [Shimakaze](https://crypko.ai/#/profile/0xD476515D39BbE098ac2C6a0A11c2018c03D27D20)
+    - 0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
+    - 萌新，需卡
 
-[Utaha](https://crypko.ai/#/profile/0x3e86Aef67002Bb2Bf442F99303603e8f59461363)  
-白发银发红瞳募集：0x3e86Aef67002Bb2Bf442F99303603e8f59461363
+1. [Utaha](https://crypko.ai/#/profile/0x3e86Aef67002Bb2Bf442F99303603e8f59461363)
+    - 0x3e86Aef67002Bb2Bf442F99303603e8f59461363
+    - 白发银发红瞳募集
 
-[jojo23333](https://crypko.ai/#/profile/0x5d536c8965c14ac7096407f614470ddbf81bab7b)  
-萌新，专攻眼镜，有眼镜娘请认准唯一指定地址：0x5d536c8965c14ac7096407f614470ddbf81bab7b
+1. [jojo23333](https://crypko.ai/#/profile/0x5d536c8965c14ac7096407f614470ddbf81bab7b)
+    - 0x5d536c8965c14ac7096407f614470ddbf81bab7b
+    - 萌新，专攻眼镜，有眼镜娘请认准唯一指定地址
 
-[幻想生物](https://crypko.ai/#/profile/0x804e40b5387b1b48122734c5a4f6bbb071fdf920)  
-收各类小萝莉: 0x804e40b5387b1b48122734c5a4f6bbb071fdf920
+1. [幻想生物](https://crypko.ai/#/profile/0x804e40b5387b1b48122734c5a4f6bbb071fdf920)
+    - 0x804e40b5387b1b48122734c5a4f6bbb071fdf920
+    - 收各类小萝莉
 
-[Shimakaze](https://crypko.ai/#/profile/0xd476515d39bbe098ac2c6a0a11c2018c03d27d20)  
-0xd476515d39bbe098ac2c6a0a11c2018c03d27d20
+1. [Shimakaze](https://crypko.ai/#/profile/0xd476515d39bbe098ac2c6a0a11c2018c03d27d20)
+    - 0xd476515d39bbe098ac2c6a0a11c2018c03d27d20
 
-[tetora](https://crypko.ai/#/profile/0x734adcdE5Ef844866d953b9E644012A808Bd0a25)  
-0x734adcdE5Ef844866d953b9E644012A808Bd0a25
+1. [tetora](https://crypko.ai/#/profile/0x734adcdE5Ef844866d953b9E644012A808Bd0a25)
+    - 0x734adcdE5Ef844866d953b9E644012A808Bd0a25
 
-[Amber](https://crypko.ai/#/profile/0x2f561d4e5b6a5102b124b7c34b2bfbde905e4a7a)  
-0x2f561d4e5b6a5102b124b7c34b2bfbde905e4a7a
+1. [Amber](https://crypko.ai/#/profile/0x2f561d4e5b6a5102b124b7c34b2bfbde905e4a7a)
+    - 0x2f561d4e5b6a5102b124b7c34b2bfbde905e4a7a
 
-[baka zxc](https://crypko.ai/#/profile/0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492)  
-群内id：吃。 0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492
+1. [baka zxc](https://crypko.ai/#/profile/0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492)
+    - 0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492
+    - 群内id：吃
 
-[Melody](https://crypko.ai/#/profile/0xbf122C217153258aBBd479A606Eb7B86425b89De)  
-金发募集ing: 0xbf122C217153258aBBd479A606Eb7B86425b89De
+1. [Melody](https://crypko.ai/#/profile/0xbf122C217153258aBBd479A606Eb7B86425b89De)
+    - 0xbf122C217153258aBBd479A606Eb7B86425b89De
+    - 金发募集ing
 
-[邪神回收者](https://crypko.ai/#/profile/0x99a9a846ec6cacb06b64fc79ed6e0e974729d258)  
-请把邪神都丢过来：0x99a9a846ec6cacb06b64fc79ed6e0e974729d258
+1. [邪神回收者](https://crypko.ai/#/profile/0x99a9a846ec6cacb06b64fc79ed6e0e974729d258)
+    - 0x99a9a846ec6cacb06b64fc79ed6e0e974729d258
+    - 请把邪神都丢过来
 
-[lbxxdbd](https://crypko.ai/#/profile/0x6eb67b5476fbd0e2baaddd29b01d9e055d69ec40)  
-日常沉迷合卡: 0x6eb67b5476fbd0e2baaddd29b01d9e055d69ec40
+1. [lbxxdbd](https://crypko.ai/#/profile/0x6eb67b5476fbd0e2baaddd29b01d9e055d69ec40)
+    - 0x6eb67b5476fbd0e2baaddd29b01d9e055d69ec40
+    - 日常沉迷合卡
+
+1. [汉堡](https://crypko.ai/#/profile/0xf8720e5998e2e05e05564a56bb911d867b5fa650)
+    - 0xf8720e5998e2e05e05564a56bb911d867b5fa650
