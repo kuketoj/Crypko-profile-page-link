@@ -62,7 +62,7 @@
 
 1. [baka zxc](https://crypko.ai/#/profile/0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492)
     - 0x75a52a0be1ef791b0a5fe2deb9794e5697ae3492
-    - 群内id：吃
+    - 群内id：吃。
 
 1. [Melody](https://crypko.ai/#/profile/0xbf122C217153258aBBd479A606Eb7B86425b89De)
     - 0xbf122C217153258aBBd479A606Eb7B86425b89De
