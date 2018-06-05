@@ -38,7 +38,7 @@
 
 1. [Shimakaze](https://crypko.ai/#/profile/0xD476515D39BbE098ac2C6a0A11c2018c03D27D20)
     - 0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
-    - 不缺卡
+    - 出租少送-养老
 
 1. [Utaha](https://crypko.ai/#/profile/0x3e86Aef67002Bb2Bf442F99303603e8f59461363)
     - 0x3e86Aef67002Bb2Bf442F99303603e8f59461363
