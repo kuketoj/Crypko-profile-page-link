@@ -87,3 +87,7 @@
 
 1. [闪灵骤现](https://crypko.ai/#/profile/0x744bbd111BdFaE67e6b920bbD12FEc26C69369be)
     - 0x744bbd111BdFaE67e6b920bbD12FEc26C69369be
+
+1. [当午](https://crypko.ai/#/profile/0x55920e0442a7780c01b8d3932b4b118f5090e279)
+    - 0x55920e0442a7780c01b8d3932b4b118f5090e279
+    - 收萝莉
