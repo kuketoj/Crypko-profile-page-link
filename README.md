@@ -36,8 +36,8 @@
 1. [PiDove](https://crypko.ai/#/profile/0xA0623311ED7165A3EaEbBC6da87f517AedA47541)
     - 0xA0623311ED7165A3EaEbBC6da87f517AedA47541
 
-1. [Shimakaze](https://crypko.ai/#/profile/0xD476515D39BbE098ac2C6a0A11c2018c03D27D20)
-    - 0xD476515D39BbE098ac2C6a0A11c2018c03D27D20
+1. [Shimakaze](https://crypko.ai/#/profile/0xd476515d39bbe098ac2c6a0a11c2018c03d27d20)
+    - 0xd476515d39bbe098ac2c6a0a11c2018c03d27d20
     - 出租少送-养老
 
 1. [Utaha](https://crypko.ai/#/profile/0x3e86Aef67002Bb2Bf442F99303603e8f59461363)
@@ -51,9 +51,6 @@
 1. [幻想生物](https://crypko.ai/#/profile/0x804e40b5387b1b48122734c5a4f6bbb071fdf920)
     - 0x804e40b5387b1b48122734c5a4f6bbb071fdf920
     - 收各类小萝莉
-
-1. [Shimakaze](https://crypko.ai/#/profile/0xd476515d39bbe098ac2c6a0a11c2018c03d27d20)
-    - 0xd476515d39bbe098ac2c6a0a11c2018c03d27d20
 
 1. [tetora](https://crypko.ai/#/profile/0x734adcdE5Ef844866d953b9E644012A808Bd0a25)
     - 0x734adcdE5Ef844866d953b9E644012A808Bd0a25
