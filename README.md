@@ -82,3 +82,11 @@
 
 1. [渚畔的潮汐](https://crypko.ai/#/profile/0x5dded2c34f12235acf5eb9ab28e037f4009786cc)
     - 0x5dded2c34f12235acf5eb9ab28e037f4009786cc
+    - 收各种好看的卡
+
+1. [yuki2112](https://crypko.ai/#/profile/0x9a2cfb1cb9fbd582da61dab5751171542f062a99)
+    - 0x9a2cfb1cb9fbd582da61dab5751171542f062a99
+    - 萌新求卡
+
+1. [闪灵骤现](https://crypko.ai/#/profile/0x744bbd111BdFaE67e6b920bbD12FEc26C69369be)
+    - 0x744bbd111BdFaE67e6b920bbD12FEc26C69369be
