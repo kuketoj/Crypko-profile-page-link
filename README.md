@@ -99,3 +99,11 @@
 1. [ying95322](https://crypko.ai/#/profile/0xB0E8F5b2187d8AC33937669b04Ae5080078A4C9e)
     - 0xB0E8F5b2187d8AC33937669b04Ae5080078A4C9e 
     - 回收带褐色皮肤的妹子(不想要的通通投给我吧)
+
+1. [Akizuki](https://crypko.ai/#/profile/0x1ac79683026cd833944713c715cfe6a01401b8dd)
+    - 0x1ac79683026cd833944713c715cfe6a01401b8dd
+    - 萌豚画风女儿募集
+
+1. [普雾](https://crypko.ai/#/profile/0x1068F752dc65Cafa63fa40F92a39e4fc01943394)
+    - 0x1068F752dc65Cafa63fa40F92a39e4fc01943394
+    - 回收一切资源(垃圾桶)
