@@ -95,3 +95,7 @@
 1. [ソミリン](https://crypko.ai/#/profile/0xbd7363f968c496232114d5459e63302f376abde7)
     - 0xbd7363f968c496232114d5459e63302f376abde7
     - 花式回收邪神，来者不拒ε-(•́ω•̀๑)
+
+1. [ying95322](https://crypko.ai/#/profile/0xB0E8F5b2187d8AC33937669b04Ae5080078A4C9e)
+    - 0xB0E8F5b2187d8AC33937669b04Ae5080078A4C9e 
+    - 回收带褐色皮肤的妹子(不想要的通通投给我吧)
