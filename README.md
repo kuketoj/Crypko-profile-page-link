@@ -72,7 +72,7 @@
 
 1. [lbxxdbd](https://crypko.ai/#/profile/0x6eb67b5476fbd0e2baaddd29b01d9e055d69ec40)
     - 0x6eb67b5476fbd0e2baaddd29b01d9e055d69ec40
-    - 日常沉迷合卡
+    - 黑心商人，私聊放低，未挂可租
 
 1. [汉堡](https://crypko.ai/#/profile/0xf8720e5998e2e05e05564a56bb911d867b5fa650)
     - 0xf8720e5998e2e05e05564a56bb911d867b5fa650
