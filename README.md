@@ -116,3 +116,7 @@
 1. [榊原涼子](https://crypko.ai/#/profile/0x946a1b83ada925b0c076c19d75f46b90c1153df1)
     - 0x946a1b83ada925b0c076c19d75f46b90c1153df1
     - 低价出租冷却中N代 需要时面议
+
+1. [Secret Keeper彩虹收集](https://crypko.ai/#/profile/0xc7c534c7b7a1aafa1052c4c1cf30d3b1bb6b6f87)
+    - 0xc7c534c7b7a1aafa1052c4c1cf30d3b1bb6b6f87
+    - 收低代彩虹和猫耳
