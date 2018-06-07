@@ -115,4 +115,4 @@
 
 1. [榊原涼子](https://crypko.ai/#/profile/0x946a1b83ada925b0c076c19d75f46b90c1153df1)
     - 0x946a1b83ada925b0c076c19d75f46b90c1153df1
-    - 邪神典藏版
+    - 低价出租冷却中N代 需要时面议
