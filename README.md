@@ -120,3 +120,7 @@
 1. [Secret Keeper彩虹收集](https://crypko.ai/#/profile/0xc7c534c7b7a1aafa1052c4c1cf30d3b1bb6b6f87)
     - 0xc7c534c7b7a1aafa1052c4c1cf30d3b1bb6b6f87
     - 收低代彩虹和猫耳
+
+1. [༺ཌ幻想༒迷烟ད༻](https://crypko.ai/#/profile/0xe79895267d71f45e77512ad9cf0d3f20008fef56)
+    - 0xe79895267d71f45e77512ad9cf0d3f20008fef56
+    - 黑心租赁商人，自带外设邪神调教场
