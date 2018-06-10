@@ -124,3 +124,7 @@
 1. [༺ཌ幻想༒迷烟ད༻](https://crypko.ai/#/profile/0xe79895267d71f45e77512ad9cf0d3f20008fef56)
     - 0xe79895267d71f45e77512ad9cf0d3f20008fef56
     - 黑心租赁商人，自带外设邪神调教场
+
+1. [chachaxxx](https://crypko.ai/#/profile/0x31b0C75996b2BD0D88dfb115694022177F0197c1)
+    - 0x31b0C75996b2BD0D88dfb115694022177F0197c1
+    - 萌新参上~很少出娘，可以联系我租（piao）
