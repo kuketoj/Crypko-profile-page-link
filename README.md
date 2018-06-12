@@ -128,3 +128,8 @@
 1. [chachaxxx](https://crypko.ai/#/profile/0x31b0C75996b2BD0D88dfb115694022177F0197c1)
     - 0x31b0C75996b2BD0D88dfb115694022177F0197c1
     - 萌新参上~很少出娘，可以联系我租（piao）
+
+1. [Casdy](https://s.crypko.ai/u/0x0fbe1f11c429e5c5bb86d4e0991eeffd2d2fda42)
+    - 0x0fbe1f11c429e5c5bb86d4e0991eeffd2d2fda42
+    - 超值大甩卖.全场百只妹子0.0005e.
+    
